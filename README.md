@@ -1,1 +1,0 @@
-# prakerja_batch2
